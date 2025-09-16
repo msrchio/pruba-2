@@ -1,2 +1,2 @@
-# pruba-2
+# prueba-2
 asfsfdfassfr
